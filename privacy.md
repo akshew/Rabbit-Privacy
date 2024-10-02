@@ -1,6 +1,6 @@
-## Rabbit Privacy Policy
+## Privacy Policy
 
-Welcome to the Rabbit family! 🐰
+Welcome to the family! 🐰
 
 We’re thrilled to have you on board. Your privacy is super important to us, and we want you to feel confident and secure while using our awesome features. Here’s a quick and friendly rundown of how we handle your information.
 
